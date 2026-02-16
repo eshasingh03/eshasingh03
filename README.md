@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **ajsingh030303@gmail.com**
 
-- 📄 Know about my experience [https://drive.google.com/file/d/1FwHgHoagfyNSIVHjzoJ7G1GVYxWb4QQo/view?usp=drivesdk](https://drive.google.com/file/d/1FwHgHoagfyNSIVHjzoJ7G1GVYxWb4QQo/view?usp=drivesdk)
+- 📄 Know about my experience [https://drive.google.com/file/d/1FwHgHoagfyNSIVHjzoJ7G1GVYxWb4QQo/view?usp=drivesdk](https://drive.google.com/file/d/1FwHgHoagfyNSIVHjzoJ7G1GVYxWb4QQo/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
