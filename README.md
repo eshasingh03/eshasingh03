@@ -3,7 +3,7 @@
 
 - 🔭 Certifications include **Data Analysis with Python, SQL, Advance Excel**
 
-- 🌱 I’m currently pursuing **Masters in Data Science and Analytics with AI**
+- 🌱 I’ve currently pursued **Masters in Data Science and Analytics with AI**
 
 - 👨‍💻 All of my projects are available at [https://drive.google.com/drive/folders/1tLSJTVTL1i8NfIN2QNVFdHAIWklu-TBy?usp=sharing](https://drive.google.com/drive/folders/1tLSJTVTL1i8NfIN2QNVFdHAIWklu-TBy?usp=sharing)
 
